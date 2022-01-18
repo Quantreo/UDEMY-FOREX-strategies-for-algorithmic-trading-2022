@@ -1,0 +1,1 @@
+# FOREX-strategies-for-algorithmic-trading-2022
