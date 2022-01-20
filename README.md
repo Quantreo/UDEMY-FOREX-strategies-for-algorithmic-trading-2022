@@ -4,7 +4,7 @@
 
 <br> 
 
-🇫🇷 COMING SOON
+🇫🇷 https://www.udemy.com/course/strategies-forex-pour-le-trading-algorithmique-2022/?referralCode=10190D657B4885AB816F
 
 <br>
 <br>
